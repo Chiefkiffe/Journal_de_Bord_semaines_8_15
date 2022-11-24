@@ -2,10 +2,10 @@
 ## Rétrospective de la présentation 2
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+La vidéo etait assez facile a suivre.
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
+la qualité du son etait vraiment mauvaise et pouvais etre largement ameliorer et donner plus d'indication claire.sinon le rendu etait plutot pas mal.
 
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+Celle de Yavuz parce que il a bien expliquer soon travail.
